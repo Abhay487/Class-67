@@ -1,0 +1,1 @@
+It was pitch dark, Sam ran back to his house
